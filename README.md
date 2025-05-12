@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media1.tenor.com/m/gwW4p3z_jbkAAAAd/takumi-chilling.gif](https://i.pinimg.com/originals/52/7f/5f/527f5faf93ebfd53218d360885654910.gif"  />
+<img align="right" height="150" src="https://i.pinimg.com/originals/52/7f/5f/527f5faf93ebfd53218d360885654910.gif"  />
 
 ###
 
